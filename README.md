@@ -1,8 +1,4 @@
- Hi, I’m Karma! The one and only biggie!🍔🌮
- I’m interested in making friends and doing mechantronics stuff.⚡️💡
- I’m currently learning Mechantronics in my hs!
-You can reach me on discord, insta, tik tok and twitter!
- Pronouns: She/Her
-Fun facts about me: Silly, Biggie, i like playing games, ill take all your food respectfully, i look out for everyone. 
-
-https://theyluvvvkarma.straw.page/#L
+I'm your favorite biggie.. okay so people call me Karma and don't copy me pleaseeee.. i hate copiers just ask for inspo ill say no but uk. DONT BE SHY TO INTERACT I DONT CARE IM JUST SHY it takes me some time to get comfortable...⚡️💡
+ I’m currently learning Mechantronics in my hs! 
+You can reach me on discord.
+ Pronouns: She/Her.. Don't call me it, they, them or him or he. ❤️
